@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @VeHooo
+- 👀 I’m Computer Technician
